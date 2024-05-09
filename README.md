@@ -11,4 +11,3 @@ Meu nome é Guilherme Araújo
 - 00001096331408sp@al.educacao.sp.gov.br
 
 - @g__araujo__
-- 
